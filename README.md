@@ -15,4 +15,4 @@
 
 ## 토큰 이코노미
 
-<img width="1027" alt="kakaotalk_photo_2018-08-14-10-05-49" src="https://user-images.githubusercontent.com/897510/51069580-20df4a80-1675-11e9-9d5d-95f40c0ab7c9.png">
+![20190329_172039](https://user-images.githubusercontent.com/49058323/55219261-d5861280-5247-11e9-8ffd-100c53b5babf.jpg)
